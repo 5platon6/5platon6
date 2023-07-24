@@ -1,0 +1,2 @@
+- Hi i'am lmafo, i developer on Python, and JavaScript, creator discord bots
+- dont talking me, i depresive
